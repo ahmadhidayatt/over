@@ -1,6 +1,6 @@
 # Overtake Auto Reff  
 
-**[Wayfinder AutoReff](https://overtake.world?referralCode=5f1a57e)** is a tool designed for automatic referal overtake airdrop  
+**[Overtake AutoReff](https://overtake.world?referralCode=5f1a57e)** is a tool designed for automatic referal overtake airdrop  
 
 ---
 
